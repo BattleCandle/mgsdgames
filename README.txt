@@ -1,0 +1,1 @@
+I do not own any of these files, programs, and do not claim ownership of any of these. This is basically just a collection of fun things for MGSD computers.
